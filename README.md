@@ -15,8 +15,6 @@ I make user friendly online shopping website
 
 # Contact
 
-For any questions or feedback, please contact Nikita(nikitadalla150904@gmail.com).
+For any questions or feedback, please contact Swati(lambaswati445@gmail.com).
 
-Follow me on "https://x.com/nikita__dalla" for updates.
-
-© 2024 Nikita Dalla. All rights reserved.
+© 2024 Swati Lamba. All rights reserved.
